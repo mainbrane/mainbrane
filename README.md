@@ -4,7 +4,7 @@
 
 A portal into a mind.
 
-MAINBRANE LTD is a creative-tech studio from Nigeria — a vessel for design, iteration, and mind-extension. The name holds both sides of that work: the mainframe that keeps, the membrane that feels.
+MAINBRANE LTD is a creative-tech studio from Nigeria — a vessel for design, iteration, and mind-extension. Mainframe and membrane: the machine, and the living edge around it.
 
 This home is young. What lives here is a small hive still forming: creative tech, writing, music, and experiments. The public rooms are only beginning to fill. You are welcome inside.
 
